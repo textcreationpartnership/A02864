@@ -35,9 +35,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The sanctuarie of a troubled soule written by I.H.Hayward, John, Sir, 1564?-1627.1601Approx. 97 KB o
+Infirmities were multiplied vpon them, and
+after that they made hast to come, ps. 15They sought theeProuide thee of a medicine beefore the
+soare come, and examine thy selfe beefore
+Iudgement: and so s
 #####Body#####
-The sanctuarie of a troubled soule written by I.H.Hayward, John, Sir, 1564?-1627.1601Approx. 97 KB o
+
+1. The I. Deuotion.
+
+1. The II. Deuotion.
+
+The death of Saintes is precious. Psal. 125.Miserable is the death of Sinners. Psal 53.
+1. The III. Deuotion.
+Call vpon mee in the day of tribulation. I
+will deliuer thee, and thou shalt praise
+mee. Psal. 50.
+1. The IIII. Deuotion.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
